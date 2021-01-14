@@ -1,0 +1,1 @@
+# Detection-of-Automatic-Flush-System-Academic-Project
